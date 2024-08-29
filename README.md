@@ -1,1 +1,3 @@
 youtube clone....
+![Screenshot 2024-08-29 224558](https://github.com/user-attachments/assets/6d00c981-c299-4ceb-9d40-12a26bbcbffd)
+![Screenshot 2024-08-29 224626](https://github.com/user-attachments/assets/2bd55327-9523-4503-b6bd-2b6abf9c9b16)
